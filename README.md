@@ -1,2 +1,0 @@
-# Oğuzhan Şahin
-
